@@ -1,5 +1,5 @@
 # Urgency Print Lab / Artbook @ MoMA PS1 Book Space 
-# August 5, 2018
+August 5, 2018
 
 The smooth flow of network culture has been normalized.
 

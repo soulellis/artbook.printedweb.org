@@ -11,3 +11,18 @@ Once downloaded, files are outside the conventions and economies and flows of pu
 Urgencyprintlab.pdf was created on August 5, 2018 and published at X:XXpm during a workshop conducted by Paul Soulellis at Artbook @ MoMA PS1 Book Space in Long Island City, NY, USA. This file may be downloaded, shuffled, remixed, printed, re-circulated—even destroyed. 
 
 ## Participants:
+
+Kathleen Caliway 
+Dikko Faust 
+Esther K Smith 
+Thomas Jockin 
+M Wu 
+Ramona Ponce 
+Eric Mueller 
+Olivia Najt 
+Jackie Leger 
+Lulu Morfogen 
+Brian Paul Lamotte 
+Aayushi Khowala 
+Tiger Dingsun 
+Amy Bassin

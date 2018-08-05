@@ -12,17 +12,17 @@ Urgencyprintlab.pdf was created on August 5, 2018 and published at X:XXpm during
 
 ## Participants:
 
-Kathleen Caliway 
-Dikko Faust 
-Esther K Smith 
-Thomas Jockin 
-M Wu 
-Ramona Ponce 
-Eric Mueller 
-Olivia Najt 
-Jackie Leger 
-Lulu Morfogen 
-Brian Paul Lamotte 
-Aayushi Khowala 
-Tiger Dingsun 
-Amy Bassin
+* Kathleen Caliway 
+* Dikko Faust 
+* Esther K Smith 
+* Thomas Jockin 
+* M Wu 
+* Ramona Ponce 
+* Eric Mueller 
+* Olivia Najt 
+* Jackie Leger 
+* Lulu Morfogen 
+* Brian Paul Lamotte 
+* Aayushi Khowala 
+* Tiger Dingsun 
+* Amy Bassin
